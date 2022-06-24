@@ -11,7 +11,7 @@ This is the experience of my whole life, work and study.
 2002.4 Went to Shanghai
 2002.6 Went to Shenzhen
 2002.9 Went to Beijing
-
+2019.7 Went to Canada
 
 
 
